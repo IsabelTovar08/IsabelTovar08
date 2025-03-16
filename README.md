@@ -26,3 +26,4 @@ Soy María Isabel, una mujer apasionada por lo que hago, me gusta exigirme y amp
 
 ### Contacto
 * Correo electrónico: [Isabeltovarp.18@gmail.com](mailto:Isabeltovarp.18@gmail.com)
+* linkedin: https://www.linkedin.com/in/isabel-tovar-804523355/
